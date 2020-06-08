@@ -1,2 +1,0 @@
-# LTG.io
-Study
